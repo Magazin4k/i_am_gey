@@ -1,1 +1,1 @@
-# i_am_gey
+# I am not gay. I am pidor.
